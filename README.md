@@ -1,4 +1,3 @@
-<img width="736" height="637" alt="Untitled3_20260521174146" src="https://github.com/user-attachments/assets/29234078-34e9-47cb-a553-c38dccd223e1" />
 
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈
@@ -17,7 +16,7 @@
 
 𝙈𝙖𝙧𝙫𝙚𝙡 𝙧𝙞𝙫𝙖𝙡𝙨,𝙍𝙚𝙙 𝙙𝙚𝙖𝙙 𝙧𝙚𝙙𝙚𝙢𝙥𝙩𝙞𝙤𝙣 (1-2), 𝙛𝙤𝙧𝙩𝙣𝙞𝙩𝙚,𝙨𝙪𝙗𝙣𝙤𝙩𝙞𝙘𝙖,𝙨𝙩𝙖𝙧𝙙𝙚𝙬 𝙫𝙖𝙡𝙡𝙚𝙮, 𝙢𝙘, 𝙨𝙞𝙢𝙨 4, 𝙪𝙣𝙙𝙚𝙧𝙩𝙖𝙡𝙚, 𝙩𝙤𝙢𝙤𝙙𝙖𝙘𝙝𝙞 𝙡𝙞𝙛𝙚.
 
-<img width="100" height="100" alt="Untitled3_20260521171506" src="https://github.com/user-attachments/assets/73920a04-9388-46f2-bb1e-654477ea4391" />
+<img width="100" height="100" alt="Untitled3_20260521174146" src="https://github.com/user-attachments/assets/29234078-34e9-47cb-a553-c38dccd223e1" />
 
 
 
