@@ -1,81 +1,135 @@
-<img width="200" height="200" alt="schlat 1 2 0" src="https://github.com/user-attachments/assets/72466848-62f0-4f44-981c-b432c3ed5aea" />
-ദ്ദി◝ ⩊ ◜.ᐟ
 
+-ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
-𝘛𝘩𝘦 𝘵𝘳𝘶𝘦 𝘖𝘯𝘦 𝘢𝘯𝘥 𝘰𝘯𝘭𝘺 𝘥𝘰𝘭𝘭𝘺!(/j) 🍮🥄 ˚₊‧
-
-
-᭝ ᨳଓ ՟ 𝓐bout me's~
-
-
-https://dollysdollitfulstrawpage.straw.page
-
-
-
-https://dollys.atabook.org/
+Welcome to My all about me!
 
 
 
 
+ʚɞ Games!
 
-
-
-<img width="200" height="200" alt="schlatt dec" src="https://github.com/user-attachments/assets/c07a8a22-8d73-4b09-af12-5e5b979223ad" />
-
-
-
-˖ ֹ੭୧ 𝗺𝗶𝗻𝗲'𝘀 ⊹ ࣪ ⑅
-
-
-ﾒ૦𝓝ames i go by  »
-𝓞illie
-
-
-
-𝓝aeil
-
-
-
-𝓓olly
+Marvel rivals,Red dead redemption (1-2), fortnite,subnotica,stardew valley, mc, sims 4, undertale, tomodachi life.
 
 
 
 
-𝓡ammy
+ʚɞ Fandoms!
 
-
-
-𝓐spen
-
-
-
-<img width="400" height="400" alt="schlatt 7" src="https://github.com/user-attachments/assets/5af19f0d-824e-4f1b-bb56-77669aa3f540" />
-
-
-
-𝓓ni's
-Proshippers,incest sups, fskn fandom, rude ppl, selfcentered ppl, controling ppl, anyone under 14+, alien stage fndm, Dsmp fans.
-
-
-
-𝓘nt's
-Rdr, weezer fans, jjk, blue lock, kny, resident evil, cod, one piece, Qsmp(2) , marvel rivals, death note, tokyo ghoul, gorillaz squid games, outsiders, and mlp!
+Tokyo Avengers, Tokyo Ghoul, ATLA, Aang, The boys, Blue lock, Mha, Qsmp, Usmp (both), Kny, Forsaken,JJk,The Outsiders, Black Clover, Codmw, Dandys World, Lookism, Gachiakuta, One Piece, JJBA
 
 
 
 
+ʚɞ My basic Dni's
 
-𝓕av '𝓕riend(s)
-𝓢ills
-
-𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠
-
-
-<img width="300" height="300" alt="bunny" src="https://github.com/user-attachments/assets/c1e1c573-cbb7-4c2b-acb5-941b2777eaec" />
+Pedos,Zoophiles,proshippers,geuinely weird individuals, racist people, people who cannot handle strongly opinionated people.
 
 
 
+ʚɞ Int's
+
+Doubles, yumeshippers, artist, same interest's/ fandoms, talkative or non talkative ppl, sweet / quiet people!
+
+
+
+ʚɞ fav songs
+
+Jane - the long faces
+
+C U Next tuesday - kesha
+
+Imposter syndrome - Sidney Gish
+
+Watchmuziek - joost
+
+Song 2 remastered 2012 - Blur
+
+Driving with My Darling - And One
+
+Weezer.
+
+Charlies inferno - That Handsome Devil
+
+Teenage Dirtbag - Wheatus
+
+Genesis - Grimes
+
+Diamond eyes - deftones
+
+Lonely day - System Of A Down
+
+
+
+ʚɞ yumes!
+
+1, Homelander THE BOYS
+
+2, Schlatt (HIS PERSONA) QSMP
+
+3, All Might MHA
+
+4, Josuke JJBA
+
+5, Jonggun LOOKISM
+
+
+
+ʚɞ status
+
+SHARING
+
+Int all doubles!!
+
+
+
+ʚɞ youtubers i enjoy
+
+Joebart
+
+Jschlatt
+
+Caseoh
+
+3Fs
+
+Efs
+
+Cloakmepls
+
+Robleis
+
+Lolathon
+
+Layze
+
+Markiplier
+
+
+
+ʚɞ socials! 
+
+DC:theporcelaindolly
+
+TTK:dollytheporcelaindoll
 
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<img width="450" height="250" alt="download (21)" src="https://github.com/user-attachments/assets/9b568810-b4ac-4a10-90c8-fa208d4cc0e4" />
