@@ -1,8 +1,3 @@
-<img width="962" height="521" alt="Untitled8_20260521174944" src="https://github.com/user-attachments/assets/2763200f-3124-4c1e-ae2e-352c1633ceca" />
-
-
-<img width="736" height="736" alt="Untitled7_20260521174114" src="https://github.com/user-attachments/assets/0fbde8e8-987f-4c8c-b211-9e6ab578391f" />
-
 
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈
@@ -128,8 +123,7 @@ Layze
 
 Markiplier
 
-<img width="200" height="200" alt="Untitled7_20260521172104" src="https://github.com/user-attachments/assets/7ccefd0a-98c8-4089-ad4c-5a7dc81a2aea" />
-
+<img width="200" height="200" alt="Untitled7_20260521174114" src="https://github.com/user-attachments/assets/0fbde8e8-987f-4c8c-b211-9e6ab578391f" />
 
 
 ʚɞ socials! 
@@ -156,4 +150,4 @@ TTK:dollytheporcelaindoll
 
 
 
-<img width="450" height="250" alt="download (21)" src="https://github.com/user-attachments/assets/9b568810-b4ac-4a10-90c8-fa208d4cc0e4" />
+<img width="450" height="250" alt="Untitled8_20260521174944" src="https://github.com/user-attachments/assets/2763200f-3124-4c1e-ae2e-352c1633ceca" />
