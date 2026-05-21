@@ -1,15 +1,14 @@
-<img width="736" height="742" alt="Untitled4_20260521174134" src="https://github.com/user-attachments/assets/6ec5d834-d846-4324-8213-2c82115e0848" />
-<img width="735" height="572" alt="Untitled5_20260521174125" src="https://github.com/user-attachments/assets/9e54ca7e-3461-428d-9e7c-c959472966ca" />
+
+
 <img width="736" height="736" alt="Untitled7_20260521174114" src="https://github.com/user-attachments/assets/0fbde8e8-987f-4c8c-b211-9e6ab578391f" />
-<img width="1200" height="848" alt="Untitled2_20260521174156" src="https://github.com/user-attachments/assets/de5f8fb8-dc46-4185-bb34-65bd06f13e72" />
-<img width="736" height="736" alt="Untitled1_20260521174206" src="https://github.com/user-attachments/assets/d035717d-21a0-4538-aa89-5e249cf91a1b" />
+
 
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
 𝘞𝘦𝘭𝘤𝘰𝘮𝘦 𝘵𝘰 𝘔𝘺 𝘢𝘭𝘭 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦!
 
-<img width="350" height="150" alt="Untitled2_20260521170930" src="https://github.com/user-attachments/assets/ee8b0a70-80e7-4631-843c-785f5301c19b" />
+<img width="450" height="150" alt="Untitled2_20260521174156" src="https://github.com/user-attachments/assets/de5f8fb8-dc46-4185-bb34-65bd06f13e72" />
 
 
 
@@ -33,7 +32,7 @@
 
 
 
-<img width="450" height="450" alt="Untitled4_20260521171542" src="https://github.com/user-attachments/assets/828aac0f-0b68-4783-988c-7b71b8d98391" />
+<img width="450" height="450" alt="Untitled4_20260521174134" src="https://github.com/user-attachments/assets/6ec5d834-d846-4324-8213-2c82115e0848" />
 
 
 
@@ -52,7 +51,7 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
-<img width="150" height="150" alt="Untitled1_20260521170711" src="https://github.com/user-attachments/assets/75b15cb7-4cb6-4e1d-9dd4-9ab1454c7ec3" />
+<img width="200" height="200" alt="Untitled1_20260521174206" src="https://github.com/user-attachments/assets/d035717d-21a0-4538-aa89-5e249cf91a1b" />
 
 ʚɞ fav songs
 
@@ -102,7 +101,8 @@ SHARING
 
 Int all doubles!!
 
-<img width="300" height="200" alt="Untitled5_20260521171819" src="https://github.com/user-attachments/assets/0ba3d3fa-fd9e-49e1-9b30-3e128e95de29" />
+
+<img width="300" height="150" alt="Untitled5_20260521174125" src="https://github.com/user-attachments/assets/9e54ca7e-3461-428d-9e7c-c959472966ca" />
 
 
 ʚɞ youtubers i enjoy
