@@ -1,43 +1,50 @@
-<img width="736" height="736" alt="Untitled7_20260521172104" src="https://github.com/user-attachments/assets/7ccefd0a-98c8-4089-ad4c-5a7dc81a2aea" />
-<img width="735" height="572" alt="Untitled5_20260521171819" src="https://github.com/user-attachments/assets/0ba3d3fa-fd9e-49e1-9b30-3e128e95de29" />
-<img width="720" height="720" alt="Untitled6_20260521172030" src="https://github.com/user-attachments/assets/50583e0c-077d-4659-89bd-085c0b385128" />
-<img width="736" height="637" alt="Untitled3_20260521171506" src="https://github.com/user-attachments/assets/73920a04-9388-46f2-bb1e-654477ea4391" />
-<img width="736" height="742" alt="Untitled4_20260521171542" src="https://github.com/user-attachments/assets/828aac0f-0b68-4783-988c-7b71b8d98391" />
 
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
-Welcome to My all about me!
-
+𝘞𝘦𝘭𝘤𝘰𝘮𝘦 𝘵𝘰 𝘔𝘺 𝘢𝘭𝘭 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦!
 
 <img width="350" height="150" alt="Untitled2_20260521170930" src="https://github.com/user-attachments/assets/ee8b0a70-80e7-4631-843c-785f5301c19b" />
 
 
 
+
+(,; ⩌ ;,)
+
+
 ʚɞ Games!
 
-Marvel rivals,Red dead redemption (1-2), fortnite,subnotica,stardew valley, mc, sims 4, undertale, tomodachi life.
+𝙈𝙖𝙧𝙫𝙚𝙡 𝙧𝙞𝙫𝙖𝙡𝙨,𝙍𝙚𝙙 𝙙𝙚𝙖𝙙 𝙧𝙚𝙙𝙚𝙢𝙥𝙩𝙞𝙤𝙣 (1-2), 𝙛𝙤𝙧𝙩𝙣𝙞𝙩𝙚,𝙨𝙪𝙗𝙣𝙤𝙩𝙞𝙘𝙖,𝙨𝙩𝙖𝙧𝙙𝙚𝙬 𝙫𝙖𝙡𝙡𝙚𝙮, 𝙢𝙘, 𝙨𝙞𝙢𝙨 4, 𝙪𝙣𝙙𝙚𝙧𝙩𝙖𝙡𝙚, 𝙩𝙤𝙢𝙤𝙙𝙖𝙘𝙝𝙞 𝙡𝙞𝙛𝙚.
+
+<img width="100" height="100" alt="Untitled3_20260521171506" src="https://github.com/user-attachments/assets/73920a04-9388-46f2-bb1e-654477ea4391" />
 
 
 
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ʚɞ Fandoms!
 
-Tokyo Avengers, Tokyo Ghoul, ATLA, Aang, The boys, Blue lock, Mha, Qsmp, Usmp (both), Kny, Forsaken,JJk,The Outsiders, Black Clover, Codmw, Dandys World, Lookism, Gachiakuta, One Piece, JJBA
+ᵀᵒᵏʸᵒ ᴬᵛᵉⁿᵍᵉʳˢ, ᵀᵒᵏʸᵒ ᴳʰᵒᵘˡ, ᴬᵀᴸᴬ, ᴬᵃⁿᵍ, ᵀʰᵉ ᵇᵒʸˢ, ᴮˡᵘᵉ ˡᵒᶜᵏ, ᴹʰᵃ, Qˢᵐᵖ, ᵁˢᵐᵖ ⁽ᵇᵒᵗʰ⁾, ᴷⁿʸ, ᶠᵒʳˢᵃᵏᵉⁿ,ᴶᴶᵏ,ᵀʰᵉ ᴼᵘᵗˢⁱᵈᵉʳˢ, ᴮˡᵃᶜᵏ ᶜˡᵒᵛᵉʳ, ᶜᵒᵈᵐʷ, ᴰᵃⁿᵈʸˢ ᵂᵒʳˡᵈ, ᴸᵒᵒᵏⁱˢᵐ, ᴳᵃᶜʰⁱᵃᵏᵘᵗᵃ, ᴼⁿᵉ ᴾⁱᵉᶜᵉ, ᴶᴶᴮᴬ
 
+
+
+<img width="450" height="450" alt="Untitled4_20260521171542" src="https://github.com/user-attachments/assets/828aac0f-0b68-4783-988c-7b71b8d98391" />
 
 
 
 ʚɞ My basic Dni's
 
-Pedos,Zoophiles,proshippers,geuinely weird individuals, racist people, people who cannot handle strongly opinionated people.
+𝐏𝐞𝐝𝐨𝐬,𝐙𝐨𝐨𝐩𝐡𝐢𝐥𝐞𝐬,𝐩𝐫𝐨𝐬𝐡𝐢𝐩𝐩𝐞𝐫𝐬,𝐠𝐞𝐮𝐢𝐧𝐞𝐥𝐲 𝐰𝐞𝐢𝐫𝐝 𝐢𝐧𝐝𝐢𝐯𝐢𝐝𝐮𝐚𝐥𝐬, 𝐫𝐚𝐜𝐢𝐬𝐭 𝐩𝐞𝐨𝐩𝐥𝐞, 𝐩𝐞𝐨𝐩𝐥𝐞 𝐰𝐡𝐨 𝐜𝐚𝐧𝐧𝐨𝐭 𝐡𝐚𝐧𝐝𝐥𝐞 𝐬𝐭𝐫𝐨𝐧𝐠𝐥𝐲 𝐨𝐩𝐢𝐧𝐢𝐨𝐧𝐚𝐭𝐞𝐝 𝐩𝐞𝐨𝐩𝐥𝐞.
 
-
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ʚɞ Int's
 
-Doubles, yumeshippers, artist, same interest's/ fandoms, talkative or non talkative ppl, sweet / quiet people!
+𝙳𝚘𝚞𝚋𝚕𝚎𝚜, 𝚢𝚞𝚖𝚎𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜, 𝚊𝚛𝚝𝚒𝚜𝚝, 𝚜𝚊𝚖𝚎 𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝'𝚜/ 𝚏𝚊𝚗𝚍𝚘𝚖𝚜, 𝚝𝚊𝚕𝚔𝚊𝚝𝚒𝚟𝚎 𝚘𝚛 𝚗𝚘𝚗 𝚝𝚊𝚕𝚔𝚊𝚝𝚒𝚟𝚎 𝚙𝚙𝚕, 𝚜𝚠𝚎𝚎𝚝 / 𝚚𝚞𝚒𝚎𝚝 𝚙𝚎𝚘𝚙𝚕𝚎!
 
+
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
 <img width="150" height="150" alt="Untitled1_20260521170711" src="https://github.com/user-attachments/assets/75b15cb7-4cb6-4e1d-9dd4-9ab1454c7ec3" />
@@ -68,7 +75,7 @@ Diamond eyes - deftones
 
 Lonely day - System Of A Down
 
-
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ʚɞ yumes!
 
@@ -82,7 +89,7 @@ Lonely day - System Of A Down
 
 5, Jonggun LOOKISM
 
-
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ʚɞ status
 
@@ -90,6 +97,7 @@ SHARING
 
 Int all doubles!!
 
+<img width="300" height="200" alt="Untitled5_20260521171819" src="https://github.com/user-attachments/assets/0ba3d3fa-fd9e-49e1-9b30-3e128e95de29" />
 
 
 ʚɞ youtubers i enjoy
@@ -114,6 +122,8 @@ Layze
 
 Markiplier
 
+<img width="200" height="200" alt="Untitled7_20260521172104" src="https://github.com/user-attachments/assets/7ccefd0a-98c8-4089-ad4c-5a7dc81a2aea" />
+
 
 
 ʚɞ socials! 
@@ -121,8 +131,6 @@ Markiplier
 DC:theporcelaindolly
 
 TTK:dollytheporcelaindoll
-
-
 
 
 
