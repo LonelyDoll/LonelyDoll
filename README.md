@@ -4,9 +4,8 @@
 
 <img width="750" height="300" alt="#homelander #theboys" src="https://github.com/user-attachments/assets/20b90efd-95e9-42a0-b773-81dd5635f681" />
 
-                 
-					ᯓ★  
-					       17 teen        shy ,, Irritable
+        ★ᯓ         18+
+						    shy ,, Irritable
 								                                    ★ᯓ
 
                
